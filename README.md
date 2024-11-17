@@ -28,6 +28,6 @@ I bear no ill will toward Brian. It's all part of this magnificent cosmic dance 
 
 In the end, this precisely the kind of situation that leads to new growth.
 
-And for what it's worth, @brianpetro, I'm sorry if my observations offended you. But I can promise that I am just one among many with the same sentiment.
+And for what it's worth, @brianpetro, I'm sorry if my observations offended you. But I can promise that I am just one among many with the same sentiment. Just browse the web and see countless other repeating the same thing. I'm just the only one crazy enough to take the heat from telling you to your face.
 
 Enjoy.
